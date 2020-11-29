@@ -1,2 +1,2 @@
 # fps-game-assets-
-NOT ME ASSETs. Frome sketchfab
+NOT MY ASSETS. Frome sketchfab
